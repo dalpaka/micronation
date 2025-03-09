@@ -15,8 +15,8 @@ Article 4: Every citizen has the right to Hospitality, Freedom and Liberty.
 
 ### Section 2 - Social Hierarchy:
 
-Aritcle 5: The Independant Micronation of Niederbachland is a purely democratic state governed by the people
-and represented by the Head of State elected Yearly.
+Aritcle 5: The Independant Micronation of Niederbachland is a purely democratic state governed 
+by the people and represented by the Head of State elected Yearly.
 
 Article 6: Every citizen has the right to vote and be voted as HEad of state and for national decisions
 signed by the Head of State.
