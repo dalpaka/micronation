@@ -1,9 +1,9 @@
-## Constitution of the Independant Micronation of Niederbachland
+## Constitution of the Society of Friends
 
 ### Section 1 - Rights:
 
 Article 1: Everyone who accepts Jesus Christ
-as his Lord and Savior in all his divinity is a 'Niederbachlander'.
+as his Lord and Savior in all his divinity is a member.
 
 Article 2: Any other practices of Beliefs or Ethnicities except for _Judaism_ and _Satanism_ are allowed
 and will not be limited.
@@ -26,3 +26,5 @@ it and it is signed by the head of state.
 
 Article 8: A majority voting system is used nationwide for the decisions taken
 and elections held in Niederbachland.
+
+Article 9: Executive Ministers that organize the state are allowed to be voted into the state.
