@@ -1,2 +1,2 @@
-# niederbachland
-The Independant Micronation of Niederbachland
+# society of friends
+secret society
