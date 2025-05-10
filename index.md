@@ -9,8 +9,7 @@ Article 2: In irder to live in This State you must be mentally
 and phisically able, Non-Jewish, Non-Gypsie, Non-Cowardice,
 heterosexual, Of indo-european Origin, And non race mixed.
 
-Article 3: No stranger has the full right to full citizensship
-considering consent was given.
+Article 3: No stranger has the full right to full citizenship.
 
 Article 4: Every citizen has the right to Hospitality, Freedom and Liberty.
 
