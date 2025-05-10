@@ -3,9 +3,9 @@
 ### Section 1 - Rights:
 
 Article 1: Everyone who accepts Jesus Christ
-as his Lord and Savior in all his divinity is a member.
+as his Lord and Savior in all his divinity is a Citizen.
 
-Article 2: In irder to live in This State you must be mentally
+Article 2: In order to live in This State you must be mentally
 and phisically able, Non-Jewish, Non-Gypsie, Non-Cowardice,
 heterosexual, Of indo-european Origin, And non race mixed.
 
