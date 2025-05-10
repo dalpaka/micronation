@@ -15,16 +15,20 @@ Article 4: Every citizen has the right to Hospitality, Freedom and Liberty.
 
 ### Section 2 - Social Hierarchy:
 
-Aritcle 5: The Society of Friends is a purely democratic state governed 
-by the people and represented by the Head of State elected Yearly.
+Article 5: The state of The Itterland is ruled by the Council
+of the high command Hohenkommandantsrat.
 
-Article 6: Every citizen has the right to vote and be voted as Head of State and for presenting national decisions, if
-signed by the Head of State.
+Article 6: The State is Governed by Ministers and Commanders, who
+can become part of the Kommandantsrat and must become Offiziere first.
 
-Article 7: National decisions are only taken after the majority of the population voted for
-it and it is signed by the head of state.
+Article 7: The lowest in the hierarchy are Zivildienstleister,
+then Rechtsoffiziere, then Minister then Kommandanten.
 
-Article 8: A majority voting system is used nationwide for the decisions taken
-and elections held in Niederbachland.
+### Section 3 - Economy
 
-Article 9: Executive Ministers that organize the state are allowed to be voted into the state.
+Article 8: The State if The Itterland is Social state
+aiming for an Agrarian and Industrial Economy, erasing
+Unemployement, Homelessnes, Crime and Inflation.
+
+Article 9: The Only nationally accepted currency is
+The Ittermark.
