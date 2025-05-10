@@ -1,4 +1,4 @@
-## Constitution of the Society of Friends
+## Constitution of the State if the Itterland
 
 ### Section 1 - Rights:
 
