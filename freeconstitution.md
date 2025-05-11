@@ -12,19 +12,19 @@ Article 4: Every citizen has the right to Hospitality and Liberty.
 
 Section 2 - Social Hierarchy:
 
-Article 5: The state of The Itterland is governed by the National Council.
+Article 5: The state of The Itterland is a free republic governed by the people.
 
-Article 6: Decisions by the head of state can pnly be taken after a majority vote and each citizen can issue a decision.
+Article 6: National Decisions by the head of state can only be taken after a majority vote and each citizen can issue a decision.
 
-Article 7: Each Citizen has the Right to vote and be voted for a Representative and a Head of State.
+Article 7: Each Citizen has the Right to vote and be voted for Representative and a Head of State.
 
-Article 8: The Head of State has executive power.
+Article 8: 
 
 Article 9: The Civil is given the power of preservation of Liberty.
 
 Section 3 - Economy
 
-Article 10: The State of The Itterland is Social state aiming for an Agrarian and Industrial Economy, erasing Unemployement, Homelessnes, Crime and Inflation.
+Article 10: The State of The Itterland is Social state aiming for an Agrarian Economy.
 
 Article 11: The Only nationally accepted currency is The Ittermark which 1 of which must be supplied to The Government in exchange for Hospitality supplied by the State.
 
