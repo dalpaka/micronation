@@ -14,7 +14,7 @@ Section 2 - Social Hierarchy:
 
 Article 5: The state of The Itterland is governed by the National Council.
 
-Article 6: The National Council otherwise consists of Military High Command, Representatives, Ministers and The head of state.
+Article 6: Decisions by the head of state can pnly be taken after a majority vote and each citizen can issue a decision.
 
 Article 7: Each Citizen has the Right to vote and be voted for a Representative and a Head of State.
 
@@ -24,8 +24,8 @@ Article 9: The Law is enforced by The Civil who is given the power of organizing
 
 Section 3 - Economy
 
-Article 8: The State of The Itterland is Social state aiming for an Agrarian and Industrial Economy, erasing Unemployement, Homelessnes, Crime and Inflation.
+Article 10: The State of The Itterland is Social state aiming for an Agrarian and Industrial Economy, erasing Unemployement, Homelessnes, Crime and Inflation.
 
-Article 9: The Only nationally accepted currency is The Ittermark which 1 of which must be supplied to The Government in exchange for Hospitality supplied by the State.
+Article 11: The Only nationally accepted currency is The Ittermark which 1 of which must be supplied to The Government in exchange for Hospitality supplied by the State.
 
-Article 10: Private businesses must be surveilled by The State.
+Article 12: Private businesses must be surveilled by The State.
