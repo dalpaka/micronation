@@ -1,2 +1,2 @@
-# society of friends
-secret society
+# Siderland
+A micronation
