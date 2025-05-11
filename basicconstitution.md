@@ -14,4 +14,8 @@ Article 6: Ministers can issue Votes for National decisions.
 
 Article 7: Protection of the Rights may be inforced by the Civil.
 
-Article 8: 
+Article 8: The State of the Itterland is an Orthodox Christian Country.
+
+Article 9: The Euro is accepted as a Currency.
+
+Article 10: The language spoken in the Nation is German.
