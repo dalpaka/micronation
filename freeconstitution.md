@@ -20,7 +20,7 @@ Article 7: Each Citizen has the Right to vote and be voted for a Representative 
 
 Article 8: The Head of State has executive power.
 
-Article 9: The Law is enforced by The Civil who is given the power of organizing law enforcement through preservation of Liberty.
+Article 9: The Civil is given the power of preservation of Liberty.
 
 Section 3 - Economy
 
