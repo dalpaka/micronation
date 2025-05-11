@@ -24,8 +24,8 @@ Article 9: The Civil is given the power of preservation of Liberty.
 
 Section 3 - Economy
 
-Article 10: The State of The Itterland is Social state aiming for an Agrarian Economy.
+Article 10: The State of The Itterland is Social state.
 
-Article 11: The Only nationally accepted currency is The Ittermark which 1 of which must be supplied to The Government in exchange for Hospitality supplied by the State.
+Article 11: The Only nationally accepted currency is The Ittermark 10 of which must be supplied to The Government weekly in exchange for Hospitality supplied by the State.
 
-Article 12: Private businesses must be surveilled by The State.
+Article 12: Private businesses are allowed to freely exist..
